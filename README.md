@@ -1,3 +1,3 @@
 # Sleepy Ash
 
-[点击](https://onimai.inari.site/character/mahiro.html)
+[不点的是gay](https://onimai.inari.site/character/mahiro.html)
